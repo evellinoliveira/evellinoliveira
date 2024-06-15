@@ -10,6 +10,4 @@ Meu nome é **Evellin**
 
 yasmim123aaa@gmail.com
 
-@evellinkjzz
-
 ![](https://media1.tenor.com/m/iIsSdqHyhOsAAAAd/fr-gato.gif)
